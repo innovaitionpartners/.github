@@ -10,4 +10,4 @@ Most AI consultants talk about transformation. We live it. Every solution we rec
 
 ## For more details
 
-https://InnovAItionPartners.com
+** https://InnovAItionPartners.com **
